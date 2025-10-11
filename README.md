@@ -1,4 +1,5 @@
 ## Hi there 👋
+MAIN IS BANNED, USING THIS ACCOUNT UNTIL IT IS NOT
 
 <!--
 **wezlemin/wezlemin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
